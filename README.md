@@ -224,6 +224,4 @@ that is it do not over thinki t by mmk
 
 
 
- it my b day do not disturb 
-
- tata bye bey ebe7eh leiewgfiswdeghfkjdshbckhjdjfk
+ 
